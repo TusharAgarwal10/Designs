@@ -1,1 +1,1 @@
-
+The deck is an evidence presentation for a research study I conducted on why people find disturbing content, especially those featured in psychological horror, to be entertaining despite the discomfort they elicit.
